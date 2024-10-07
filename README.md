@@ -1,0 +1,12 @@
+https://arcade.makecode.com/25702-61782-75285-35273
+https://arcade.makecode.com/51050-31070-22005-44567
+https://arcade.makecode.com/18823-54089-93706-48073
+https://arcade.makecode.com/09237-20286-95777-49791
+https://arcade.makecode.com/44303-73946-84562-25877
+https://arcade.makecode.com/88316-28693-95226-44709
+https://arcade.makecode.com/45395-53641-52763-78622
+https://arcade.makecode.com/33854-83242-86818-48866
+https://arcade.makecode.com/93938-67263-49309-24750
+https://arcade.makecode.com/45923-46685-64285-48433
+https://arcade.makecode.com/19461-57216-43347-19211
+https://arcade.makecode.com/45395-53641-52763-78622
